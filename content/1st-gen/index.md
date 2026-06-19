@@ -1,3 +1,3 @@
 ---
-title: First Generation
+title: 1st Generation
 ---

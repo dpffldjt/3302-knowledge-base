@@ -1,3 +1,3 @@
 ---
-title: Third Generation
+title: 3rd Generation
 ---

@@ -1,3 +1,3 @@
 ---
-title: Second Generation
+title: 2nd Generation
 ---
