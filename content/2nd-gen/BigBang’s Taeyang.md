@@ -1,6 +1,8 @@
 ---
 title: Taeyang
 ---
+![[Bigbang-taeyang-2016.jpg]]
+Taeyang in 2016<sup>2</sup>
 ## Bio
 Taeyang was born Dong Young-bae in 1988. His stage name, Taeyang, means ‘sun’ in Korean. He became a trainee at [[YG Entertainment]], and originally was training to be in a [duo](https://youtu.be/29HtHS171HI?si=iF4cOV0anWnjMRRj) with [[BigBang’s G-Dragon|G-Dragon]], but plans changed, and they became the first members of the group that later became [[BigBang]], debuting in 2006. 
 
@@ -18,6 +20,6 @@ Other than BigBang, he is also married to actress Min Hyo-rin, and they have a c
 - [VIBE (feat. Jimin of BTS)](https://www.youtube.com/watch?v=cXCBiF67jLM)
 - [Shoong! (feat. LISA of BLACKPINK)](https://www.youtube.com/watch?v=NFnAuiklEug)
 - [‘QUINTESSENCE’ FULL ALBUM](https://www.youtube.com/watch?v=Upnuo_h1qJg)
-<hr>
 ## References
 1. [“We Had A Period Of Time Where We Were Broken Up” — BIGBANG’s Taeyang Reveals The Heartbreaking Origin Of “Eyes, Nose, Lips”](https://www.koreaboo.com/news/bigbang-taeyang-min-hyorin-breakup-song-eyes-nose-lips/)
+2. [By File:Taeyang - MADE THE MOVIE Premiere.jpg: GOMderivative work: Alexataylor07 (talk) - File:Taeyang - MADE THE MOVIE Premiere.jpg, CC BY 4.0,](https://commons.wikimedia.org/w/index.php?curid=63582712)

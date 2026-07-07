@@ -9,8 +9,6 @@ After other artistic ventures didn’t take off, [[Seo Taiji]], along with dance
 - [[Seo Taiji and Boys’ Seo Taiji|Seo Taiji]]
 - [[Seo Taiji and Boys’ Yang Hyun-suk|Yang Hyun-suk]]
 - [[Seo Taiji and Boys’ Lee Juno|Lee Juno]]
-
-<hr>
 ## References
 [1](What is K-pop? | MTV Iggy | page 3. (n.d.). https://web.archive.org/web/20120106170700/http:/www.mtviggy.com/articles/k-pop-uncovered-intro/3)
 [2](Maliangkay, R. (2013). The popularity of individualism. In *The Korean Popular Culture Reader* (pp. 296–313). doi:10.1215/9780822377566-018)

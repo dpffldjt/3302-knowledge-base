@@ -1,6 +1,8 @@
 ---
 title: T.O.P
 ---
+![[Bigbang-top-2016.jpg]]
+T.O.P in 2016<sup>4</sup>
 ## Bio
 T.O.P, born Choi Seunghyun in 1987, was the third member of [[BigBang]] to be chosen, and originally the oldest. He was childhood friends with [[BigBang’s G-Dragon]], having grown up in the same neighbourhood.
 
@@ -15,8 +17,8 @@ Due to concerns of backlash toward the group, T.O.P first left [[YG Entertainmen
 ### Company
 - [[YG Entertainment]] *until 2022*
 - TOPSPOT PICTURES as an actor
-
 ## References
 1. [G-Dragon “BigBang’s nickname was ‘What do I do?’”](https://www.asiae.co.kr/news/view.htm?idxno=2010012614544865752)
 2. [Medical expert comments on T.O.P’s benzodiazepine overdose](https://www.allkpop.com/article/2017/06/medical-expert-comments-on-tops-benzodiazepine-overdose)
 3. [T.O.P says he has “already withdrawn” from Big Bang](https://www.nme.com/news/music/t-o-p-says-he-has-already-withdrawn-from-big-bang-3450179)
+4. [By Always Be Pretty - http://alwaysbepretty.tistory.com/39, CC BY 4.0,](https://commons.wikimedia.org/w/index.php?curid=50869304)

@@ -8,7 +8,7 @@ tags:
   - "#in1996"
   - "#in2003"
 ---
-![[G-Dragon_in_October_2025.jpg]]
+![[Bigbang-gdragon-2025.jpg]]
 G-Dragon in 2025<sup>4</sup>
 ## Bio
 G-Dragon, born Kwon Ji Yong, is the leader of [[BigBang]] and member of BigBang subunit [[GD&TOP]]. His stage name comes from his birth name, with 龍 (yong) meaning dragon in Korean. 
@@ -45,7 +45,6 @@ On release, one of the tracks from this EP included vocals from a mystery girl, 
 His self-titled album is the last project he released before his enlistment in the military, and it was his last release before Ubermensch, 8 years later. It was a very different musical colour to his previous releases, which is especially visible in Untitled, 2014.
 - [무제(無題) (Untitled, 2014)](https://www.youtube.com/watch?v=9kaCAbIXuyg)
 
-<hr>
 ## References
 1. [G-Dragon “I was an SM trainee for 5 years” (Interview)](https://www.asiae.co.kr/article/2010011409475161855) (original in Korean)
 2. [G-Dragon "During trainee days, for a year I just cleaned like crazy"](https://web.archive.org/web/20100204091917/http://kr.news.yahoo.com/service/news/shellview.htm?articleid=20100129080000379f3&linkid=4&newssetid=1352) (original in Korean)
