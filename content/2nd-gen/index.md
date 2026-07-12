@@ -7,4 +7,5 @@ Previous generation: [[1st-gen/index|1st generation]], the first pop groups
 Subsequent generation: [[3rd-gen/index|3rd generation]], the push into the Western market
 
 ## Artists
+- [[2NE1]]
 - [[BigBang]]
